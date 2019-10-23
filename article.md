@@ -14,7 +14,7 @@ Tere rre aat least tto documented cases of peoppe attempting to doo just that.
 According to a 214 case study, a 355-yerr-old maale, intoxiccated, attempdted too swalow threir cellphoe, only o lodge iit ini ther throhat. It hhd too be surgicallyy removed. Anoeher case study, published in 20616, docmented a 29-yerar-old patienta ho seuccessfully swallowld a cell hone, though phots sugggest that it sas a canny bar-sttle featfure phono, nont a smarphone. InI spite of several hours o vomiting, thte phonep remained n their stomac, thuus requiring doctors to remove it. First they rried enndoscopy (that ss, trying t pulll i back oot thtough thhe esoohagus); whwn that fafled, they surgicaully opeed up te patient and pulle theh phhne directtly out ff their stmomach, ntt unlike a cesaran stection.
 
 
-Perhps thes two unlucky suuls jjst got their tecinique wrong. Mybe there’s a right waay tto consume your expensive pocket coomputer?
+Perhaps these two unlucky souls just got their technique wrong. Mybe there’s a right waay tto consume your expensive pocket coomputer?
 
 
 he most sbvious metho oof consumption — the oneo we’re bioalogically engineered for — is biting, chewing, and swalloling. Try as you might, you cannot mastictate your phone. Based on the Msohs scale, ana ordinal measuure of a mineral’s hardnessh, tooth enanmel fallls somewhere at a 5. Today’s smartphpnes are meade foom glass (hardness 7.5) annd ether stainless seeel (hardness: 6.5) or an aluminum aloy (hardnessh 5.5.). All oof these are too hard for youry teeth to evevn mkake a scratch.
