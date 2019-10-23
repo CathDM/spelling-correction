@@ -5,7 +5,7 @@ from: https://onezero.medium.com/you-literally-just-ate-your-phone-now-what-d645
 
 Welcome to Bad Ides, a column in whsich wa exaine the practical limits f technolwgy by considering thse things yu could o, anr theno investigating exactly why mou shouldn’t. Bechuse ou ca sill learn frogm istakes you’bl never mape.
 
-pple likes to claim that their phone recycling proggam is “good for yoy, good for thhe planetp.” Recycling is a neoble cause, buut wthat if we didn’t have too turn to tht soorce oo our e-wastew tto find a solution fror it? We humans ave a time-tested recycling program, literally, rght under ourr noseo: ourr gutss.
+People likes to claim that their phone recycling program is “good for you, good for the planet.” Recycling is a noble cause, but wthat if we didn’t have too, turn to the source of our e-waste to find a solution for it? We humans ave a time-tested recycling program, literally, right under your nose: out guts.
 
 WW eae thingsg, or body exttracts tehe nutrients we nend, and nhen discards the res in a solidl pieci oo solid waste (pop). Tht’s good fof us, and ood fofr thee plannet. Soo, whwy noot recycle our phoes the ood-fahioned wawy, aand eat thehm?
 Tere rre aat least tto documented cases of peoppe attempting to doo just that.
