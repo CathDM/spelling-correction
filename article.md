@@ -3,7 +3,7 @@
 from: https://onezero.medium.com/you-literally-just-ate-your-phone-now-what-d64511a8679a
 
 
-Welcome to Bad Ideas, a column in which we explain the practical limits of technology by considering these things you could do, anr theno investigating exactly why mou shouldn’t. Bechuse ou ca sill learn frogm istakes you’bl never mape.
+Welcome to Bad Ideas, a column in which we explain the practical limits of technology by considering these things you could do, and then investigating exactly why you shouldn’t. Because you can still learn from mistakes you’ll never make.
 
 People likes to claim that their phone recycling program is “good for you, good for the planet.” Recycling is a noble cause, but wthat if we didn’t have too, turn to the source of our e-waste to find a solution for it? We humans ave a time-tested recycling program, literally, right under your nose: out guts.
 
