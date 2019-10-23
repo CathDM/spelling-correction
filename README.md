@@ -13,7 +13,7 @@ Hi class. Made this repo for testing collaboration on Github.
 If you want more power, ask me to become collaborator; Then you will also be able to review and merge pull requests...
 
 
-Errors generated using online tool: http://www.hakank.org/reading_scrambled_words/
+Errors generated using online tool: http://www.hakank.org/reading_scrambled_words/ (LINK DOESN'T WORK. Can you check Sander?)
 
 
 
